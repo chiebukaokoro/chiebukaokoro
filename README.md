@@ -1,4 +1,4 @@
-![Alt Text]([file:C:/Users/Snapnet User/Downloads/Downloads/Blue Gold Elegant Minimalist Digital Marketer LinkedIn Banner (4)](https://www.canva.com/design/DAFouw1-dXM/n6ONkaCriKjuFDU6TaQXtw/edit?utm_content=DAFouw1-dXM&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton))
+![Alt Text](https://www.canva.com/design/DAFouw1-dXM/n6ONkaCriKjuFDU6TaQXtw/edit?utm_content=DAFouw1-dXM&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 ---
 #### Hi 👋, I am Chiebuka 😊
 
