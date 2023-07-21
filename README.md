@@ -1,4 +1,5 @@
-![Alt Text](C:/Users/Snapnet User/Downloads/Blue Gold Elegant Minimalist Digital Marketer LinkedIn Banner (4).png)
+![Blue Gold Elegant Minimalist Digital Marketer LinkedIn Banner (4)](https://github.com/chiebukaokoro/chiebukaokoro/assets/90457010/130d08d9-41f2-448e-b935-4c329c5ecf8a)
+
 
 ---
 #### Hi 👋, I am Chiebuka 😊
